@@ -1,1 +1,0 @@
-I love Martin Cosler.
